@@ -1,1 +1,2 @@
-Couper les pommes et mélanger les autres ingrédients
+
+Coupez les pommes et mélanger les autres ingrédients
